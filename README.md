@@ -1,0 +1,7 @@
+[task-1a.pdf](https://github.com/user-attachments/files/22322908/task-1a.pdf)
+[task-1b.pdf](https://github.com/user-attachments/files/22322909/task-1b.pdf)
+[task-2.pdf](https://github.com/user-attachments/files/22322913/task-2.pdf)
+[task-3a.pdf](https://github.com/user-attachments/files/22322914/task-3a.pdf)
+[task-3b.pdf](https://github.com/user-attachments/files/22322915/task-3b.pdf)
+[task 4.pdf](https://github.com/user-attachments/files/22322916/task.4.pdf)
+[task5.pdf](https://github.com/user-attachments/files/22322919/task5.pdf)
